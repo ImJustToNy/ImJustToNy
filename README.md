@@ -1,3 +1,3 @@
 ### Hi there 👋
 
-💼 LinkedIn: https://www.linkedin.com/in/antoni-siek/
+LinkedIn: https://www.linkedin.com/in/antoni-siek/
